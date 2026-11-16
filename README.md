@@ -1,5 +1,5 @@
 -  Hi, I’m @theonlytruemuck
--  I’m interested in Minecraft addons and mathematics
+-  I’m celesteing, making mods, maps, and clearing maps
 -  I’m currently learning a lot of stuff at the same time
 -  I’m looking to collaborate on anything that wakes my interst
 -  How to reach me: discord @theonlytruemuck
